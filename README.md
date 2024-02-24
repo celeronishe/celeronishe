@@ -1,5 +1,4 @@
-### Hi there 👋
+### Hi 👋
 
-- im bhalone but I lost all files and apps for 2fa so now im here xd
-- im making silly projects with silly code
-
+- im bhHi 👋alone Hi 👋 I lost all fHi 👋iles and apps for 2faHi 👋Hi 👋
+- Hi 👋 
